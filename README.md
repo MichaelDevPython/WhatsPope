@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @WhatsPope
+- 👀 I’m interested in music, game and creating simple programmes to make easier tasks on college.
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on who has creative ideas to upgrade code
+- 📫 How to reach me: discord Whatspoppin # 2236
